@@ -4,6 +4,6 @@
 Chumlees for chinese.  Good and fast take out.
 
 ### Things to do
-Ski Ward
+Ski Ward Hill
 
 ### Schools
