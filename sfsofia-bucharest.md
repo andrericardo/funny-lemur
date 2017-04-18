@@ -7,4 +7,4 @@ Pizza at Dante
 Escalade at Vertical Spirits
 Fitness at FitClass
 
-@razor5900 recomands some nice place to eat and some good things to do in Parker,Colorado 
+@razor5900 recomands some nice places to eat and some good things to do in Parker,Colorado 
